@@ -1,0 +1,36 @@
+{
+  "name": "bay-area-tattoo-convention-2016",
+  "version": "1.0.0",
+  "description": "A list of the tattoo artists at the Bay Area tattoo convention 2016",
+  "main": "get.js",
+  "dependencies": {
+    "jsonfile": "^2.4.0",
+    "cheerio": "^0.22.0",
+    "request": "^2.74.0"
+  },
+  "devDependencies": {},
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "keywords": [
+    "tattoo",
+    "convention",
+    "sf",
+    "san",
+    "francisco",
+    "bay",
+    "area",
+    "tattooing",
+    "artists"
+  ],
+  "author": "Ryan Burgess",
+  "license": "MIT",
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/ryanburgess/bay-area-tattoo-convention-2016.git"
+  },
+  "bugs": {
+    "url": "https://github.com/ryanburgess/bay-area-tattoo-convention-2016/issues"
+  },
+  "homepage": "https://github.com/ryanburgess/bay-area-tattoo-convention-2016#readme"
+}
