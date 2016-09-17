@@ -7,8 +7,7 @@ content += '\n#Artist List\n';
 
 // loop through artists.json to create artist list
 for (const artist of obj) {
-  content += (`\n[${artist.artist}](${artist.instagram})\n
-${artist.shop}\n\n`);
+  content += (`\n[${artist.artist}](${artist.instagram}) - ${artist.shop}\n\n`);
 }
 
 // create readme file

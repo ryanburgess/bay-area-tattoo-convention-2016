@@ -2,957 +2,575 @@
 List of artists attending the annual Bay Area Tattoo Convention October 21–22–23, 2016 SFO Hyatt Regency
 #Artist List
 
-[Aaron Hodges](https://www.instagram.com/aaronhodgesart/)
+[Aaron Hodges](https://www.instagram.com/aaronhodgesart/) - Spider Murphys
 
-Spider Murphys
 
+[Adam Warmerdam](https://www.instagram.com/adamwarmerdam/) - Dark Horse
 
-[Adam Warmerdam](https://www.instagram.com/adamwarmerdam/)
 
-Dark Horse
+[Adrian Lee](https://www.instagram.com/adrianatak/) - Analog Tattoo
 
 
-[Adrian Lee](https://www.instagram.com/adrianatak/)
+[Akiu Sale](https://www.instagram.com/polynesianworks/) - House of
 
-Analog Tattoo
 
+[Andreas Coenen](https://www.instagram.com/andreas_coenen) - Sinner and
 
-[Akiu Sale](https://www.instagram.com/polynesianworks/)
 
-House of
+[Antonio Roque](https://www.instagram.com/antonioroque) - Black Label
 
 
-[Andreas Coenen](https://www.instagram.com/andreas_coenen)
+[Andrew Mann](https://www.instagram.com/andrewmann86) - Seventh Son
 
-Sinner and
 
+[Austin Maples](https://www.instagram.com/austinmaples) - Idle Hand
 
-[Antonio Roque](https://www.instagram.com/antonioroque)
 
-Black Label
+[Ben Cheese](undefined) - Everlasting
 
 
-[Andrew Mann](https://www.instagram.com/andrewmann86)
+[Ben Corn](https://www.instagram.com/bencorntattoos) - Tight Ship
 
-Seventh Son
 
+[Ben Grillo](https://www.instagram.com/bengrillo) - American Tattoo
 
-[Austin Maples](https://www.instagram.com/austinmaples)
 
-Idle Hand
+[Bert Krak](https://www.instagram.com/bertkrak) - Smith Street
 
 
-[Ben Cheese](undefined)
+[Ben Rorke](https://www.instagram.com/benrorketattoo) - Tradition Tattoo
 
-Everlasting
 
+[Ben Siebert](https://www.instagram.com/bensiebert/) - Great Wave
 
-[Ben Corn](https://www.instagram.com/bencorntattoos)
 
-Tight Ship
+[Beppe Strambini](https://www.instagram.com/beppestrambini) - Ink Addiction
 
 
-[Ben Grillo](https://www.instagram.com/bengrillo)
+[Big 5](https://www.instagram.com/unionmachine) - Union Machine
 
-American Tattoo
 
+[Big Meas](https://www.instagram.com/bigmeas) - Sacred Hand
 
-[Bert Krak](https://www.instagram.com/bertkrak)
 
-Smith Street
+[Bill Salmon](https://www.instagram.com/diamondclubtattoo/) - Diamond Club
 
 
-[Ben Rorke](https://www.instagram.com/benrorketattoo)
+[BJ Betts](https://www.instagram.com/bjbetts) - Trademark/State St.
 
-Tradition Tattoo
 
+[Brad Worthen](https://www.instagram.com/bradleeworthen/) - Napa Valley
 
-[Ben Siebert](https://www.instagram.com/bensiebert/)
 
-Great Wave
+[Brian P](https://www.instagram.com/brian_pacificsoultattoo) - Pacific Soul
 
 
-[Beppe Strambini](https://www.instagram.com/beppestrambini)
+[Britton McFetridge](https://www.instagram.com/brittyb916/) - Royal Peacock
 
-Ink Addiction
 
+[Bryan Burk](https://www.instagram.com/bryanburk/) - Dark Horse
 
-[Big 5](https://www.instagram.com/unionmachine)
 
-Union Machine
+[Bryan Randolph](https://www.instagram.com/bryanrandolph/) - Spider Murphys
 
 
-[Big Meas](https://www.instagram.com/bigmeas)
+[Cameron Miller](https://www.instagram.com/cameronmillerart/) - Warhorse    
 
-Sacred Hand
 
+[Cats    2](https://www.instagram.com/cats_tattoo_/) - Spirit Tattoo
 
-[Bill Salmon](https://www.instagram.com/diamondclubtattoo/)
 
-Diamond Club
+[Cecelia Altamirano](https://www.instagram.com/ceceliatat2/) - Seventh Son
 
 
-[BJ Betts](https://www.instagram.com/bjbetts)
+[Chad Koeplinger](https://www.instagram.com/chadkoeplinger/) - The World
 
-Trademark/State St.
 
+[Chris Bass](https://www.instagram.com/cbass_tattoo/) - Tattoos Deluxe
 
-[Brad Worthen](https://www.instagram.com/bradleeworthen/)
 
-Napa Valley
+[Chris Brand](https://www.instagram.com/cbrandworks/) - Deers Eye
 
 
-[Brian P](https://www.instagram.com/brian_pacificsoultattoo)
+[Chris Kline](https://www.instagram.com/chrisdkline) - Eastern Pass
 
-Pacific Soul
 
+[Chris Nunez](https://www.instagram.com/chrisnunezhandcrafted/) - Hand Crafted
 
-[Britton McFetridge](https://www.instagram.com/brittyb916/)
 
-Royal Peacock
+[Chris Yvon](https://www.instagram.com/mastersofdeath/) - Power Tattoo
 
 
-[Bryan Burk](https://www.instagram.com/bryanburk/)
+[Chuco Moreno](https://www.instagram.com/chucomoreno95237) - Zombie Tattoo
 
-Dark Horse
 
+[Chuey Quintanar](https://www.instagram.com/chueyquintanar/) - Deers Eye
 
-[Bryan Randolph](https://www.instagram.com/bryanrandolph/)
 
-Spider Murphys
+[Cody Miller](https://www.instagram.com/codykilla/) - Blackheart    
 
 
-[Cameron Miller](https://www.instagram.com/cameronmillerart/)
+[Colin Dowling](https://www.instagram.com/colindowling/) - Gold Rush/
 
-Warhorse    
 
+[Craig Toth](https://www.instagram.com/craigtoth/) - Hold Fast
 
-[Cats    2](https://www.instagram.com/cats_tattoo_/)
 
-Spirit Tattoo
+[Damien J](undefined) - Thorn    Sang
 
 
-[Cecelia Altamirano](https://www.instagram.com/ceceliatat2/)
+[Damien Rodriguez](https://www.instagram.com/damienrodriguez/) - Invisible NYC
 
-Seventh Son
 
+[Dan Kubin](https://www.instagram.com/dankubin/) - Missouri     
 
-[Chad Koeplinger](https://www.instagram.com/chadkoeplinger/)
 
-The World
+[Dan Smith](https://www.instagram.com/dansmithism/) - Captured Tattoo
 
 
-[Chris Bass](https://www.instagram.com/cbass_tattoo/)
+[Dana James](https://www.instagram.com/stoneylonesome/) -    Warhorse
 
-Tattoos Deluxe
 
+[Daniele Hoang](https://www.instagram.com/danielehoangtattoos) - Black Horse
 
-[Chris Brand](https://www.instagram.com/cbrandworks/)
 
-Deers Eye
+[Dave Cummings](https://www.instagram.com/davepscee/) - PSC Tattoo
 
 
-[Chris Kline](https://www.instagram.com/chrisdkline)
+[David James](https://www.instagram.com/jamesdavidjames/) - Tattoos Deluxe
 
-Eastern Pass
 
+[David Parker](https://www.instagram.com/davidparker_bht/) - Blackheart    
 
-[Chris Nunez](https://www.instagram.com/chrisnunezhandcrafted/)
 
-Hand Crafted
+[David Robinson](https://www.instagram.com/davidrobinson_mybloodyart/) - Seventh Son
 
 
-[Chris Yvon](https://www.instagram.com/mastersofdeath/)
+[Dean Sacred](https://www.instagram.com/greyxghost/) - Sacred Tattoo
 
-Power Tattoo
 
+[Dean Williams](https://www.instagram.com/normandeanwilliams/) - Elm Street
 
-[Chuco Moreno](https://www.instagram.com/chucomoreno95237)
 
-Zombie Tattoo
+[Deb Yarian](https://www.instagram.com/debyarian/) - Eagle River
 
 
-[Chuey Quintanar](https://www.instagram.com/chueyquintanar/)
+[Dennis Mata’afa](https://www.instagram.com/dennismataafa/) - Sacred Center
 
-Deers Eye
 
+[Derick Montez](https://www.instagram.com/derickmontez/) - Idle Hand
 
-[Cody Miller](https://www.instagram.com/codykilla/)
 
-Blackheart    
+[Don Ed](https://www.instagram.com/tattoo_city/) - Hardy    Tattoo
 
 
-[Colin Dowling](https://www.instagram.com/colindowling/)
+[Don Yarian](https://www.instagram.com/donyarian_ert/) - Eagle River
 
-Gold Rush/
 
+[Doug Hardy](https://www.instagram.com/tattoosbydoughardy/) - Tattoo City
 
-[Craig Toth](https://www.instagram.com/craigtoth/)
 
-Hold Fast
+[Dr. Claw](https://www.instagram.com/clawtattoos/) - Diamond Club
 
 
-[Damien J](undefined)
+[Eddy Reyes](https://www.instagram.com/secretsidewalktattoos/) - Secret Sidewalk
 
-Thorn    Sang
 
+[Eddy Reyes](https://www.instagram.com/eddyreyesjr/) - Jr.    Secret
 
-[Damien Rodriguez](https://www.instagram.com/damienrodriguez/)
 
-Invisible NYC
+[Eli Quinters](https://www.instagram.com/eli_quinters/) - Smith Street
 
 
-[Dan Kubin](https://www.instagram.com/dankubin/)
+[En/Horizaru    Japan](https://www.instagram.com/en_horizaru/) - 
 
-Missouri     
 
+[Eric Gonzalez](https://www.instagram.com/nspired1/) -    Deers
 
-[Dan Smith](https://www.instagram.com/dansmithism/)
 
-Captured Tattoo
+[Eric Jones](https://www.instagram.com/portcitytattoocm/) - Port City
 
 
-[Dana James](https://www.instagram.com/stoneylonesome/)
+[Espi](https://www.instagram.com/espi_mausoleum/) -   Mausoleum
 
-   Warhorse
 
+[Franco Vescovi](https://www.instagram.com/franco_vescovi/) - Vatican Studios
 
-[Daniele Hoang](https://www.instagram.com/danielehoangtattoos)
 
-Black Horse
+[Fred Flores](https://www.instagram.com/fred_flores/) - Ink Slingers
 
 
-[Dave Cummings](https://www.instagram.com/davepscee/)
+[Freddy Corbin](https://www.instagram.com/downtownoakland/) - Temple Tattoo
 
-PSC Tattoo
 
+[Ganji Bang](https://www.instagram.com/bangganji/) - 3 Tides
 
-[David James](https://www.instagram.com/jamesdavidjames/)
 
-Tattoos Deluxe
+[Gary Royal](https://www.instagram.com/garyroyaltattoo/) - Idle Hand
 
 
-[David Parker](https://www.instagram.com/davidparker_bht/)
+[George Campise](https://www.instagram.com/georgecampise/) - Warhorse    
 
-Blackheart    
 
+[Greg Christian](https://www.instagram.com/gregchristian4130/) -    Tattoo
 
-[David Robinson](https://www.instagram.com/davidrobinson_mybloodyart/)
 
-Seventh Son
+[Greg Dyer](https://www.instagram.com/tacomonster/) - Warhorse    
 
 
-[Dean Sacred](https://www.instagram.com/greyxghost/)
+[Greg James](https://www.instagram.com/gregtattoo/) - Tattoos Deluxe
 
-Sacred Tattoo
 
+[Greg Mayorga](https://www.instagram.com/gregmayorga_/) - Deers Eye
 
-[Dean Williams](https://www.instagram.com/normandeanwilliams/)
 
-Elm Street
+[Greg Rojas](https://www.instagram.com/goldhand/) - Tattoo City
 
 
-[Deb Yarian](https://www.instagram.com/debyarian/)
+[Grez    Kings](https://www.instagram.com/kingsavetattoo/) - Avenue    
 
-Eagle River
 
+[Grime](https://www.instagram.com/the_grime/) - Skull and
 
-[Dennis Mata’afa](https://www.instagram.com/dennismataafa/)
 
-Sacred Center
+[Hans Joen](https://www.instagram.com/hansebluearms/) - Heggum 
 
 
-[Derick Montez](https://www.instagram.com/derickmontez/)
+[Harv    Strong](https://www.instagram.com/yourhomeboy_harv/) - Tattoo    
 
-Idle Hand
 
+[Heath Nock](https://www.instagram.com/heathnock/) - Hunter and
 
-[Don Ed](https://www.instagram.com/tattoo_city/)
 
-Hardy    Tattoo
+[Heath Preheim](https://www.instagram.com/heathtemple/) - Temple Tattoo
 
 
-[Don Yarian](https://www.instagram.com/donyarian_ert/)
+[Heather Bailey](https://www.instagram.com/cathedraloftears/) - Blackheart    
 
-Eagle River
 
+[Henry Dever](https://www.instagram.com/henrydevertattoo/) - Napa Valley
 
-[Doug Hardy](https://www.instagram.com/tattoosbydoughardy/)
 
-Tattoo City
+[Holly Ellis](https://www.instagram.com/hollsballs1/) -    Idle
 
 
-[Dr. Claw](https://www.instagram.com/clawtattoos/)
+[Horichuy     Onizuka](https://www.instagram.com/horichuy) - Tattoo    
 
-Diamond Club
 
+[Horihachi    Japan](http://https://www.instagram.com/horihachi/) - 
 
-[Eddy Reyes](https://www.instagram.com/secretsidewalktattoos/)
 
-Secret Sidewalk
+[Horikiku   Japan](https://www.instagram.com/horikiku/) - 
 
 
-[Eddy Reyes](https://www.instagram.com/eddyreyesjr/)
+[Ian Carder](https://www.instagram.com/iancarder/) -    Forever
 
-Jr.    Secret
 
+[Ian Jones](https://www.instagram.com/jonezyzaps) - True Tattoo
 
-[Eli Quinters](https://www.instagram.com/eli_quinters/)
 
-Smith Street
+[Ikyu    Japan](https://www.instagram.com/urojiya/) - 
 
 
-[En/Horizaru    Japan](https://www.instagram.com/en_horizaru/)
+[Jason Kundell](https://www.instagram.com/artworkrebelstattoo/) -    Art
 
 
+[Jason McAfee](https://www.instagram.com/jasonmcafee72/) -    Temple
 
 
-[Eric Gonzalez](https://www.instagram.com/nspired1/)
+[Jason Motley](https://www.instagram.com/jason_motley/) - Power Tattoo
 
-   Deers
 
+[Jason Vaughn](https://www.instagram.com/jason_vaughn_tattoos/) - Dark Horse
 
-[Eric Jones](https://www.instagram.com/portcitytattoocm/)
 
-Port City
+[Jeff Croci](https://www.instagram.com/jeffcroci/) - Seventh Son
 
 
-[Espi](https://www.instagram.com/espi_mausoleum/)
+[Jeff Gleason](https://www.instagram.com/jeffpgleason/) -    Everlasting
 
-  Mausoleum
 
+[Jeff Rassier](https://www.instagram.com/jeffrassier/) - Blackheart   
 
-[Franco Vescovi](https://www.instagram.com/franco_vescovi/)
 
-Vatican Studios
+[Jen Lee](https://www.instagram.com/jenleetattoo/) - Tattoo City
 
 
-[Fred Flores](https://www.instagram.com/fred_flores/)
+[Jeremy Lyn](https://www.instagram.com/jeremylyn/) - Kimzey Spider
 
-Ink Slingers
 
+[Jesico    Hold](https://www.instagram.com/jesico_/) - Fast    
 
-[Freddy Corbin](https://www.instagram.com/downtownoakland/)
 
-Temple Tattoo
+[Joe Haasch](https://www.instagram.com/joehaasch/) - Elm Street
 
 
-[Ganji Bang](https://www.instagram.com/bangganji/)
+[Joe Larralde](https://www.instagram.com/joelarralde/) -   Art
 
-3 Tides
 
+[Joey G](https://www.instagram.com/joey_g/) - Strong Tattoo
 
-[Gary Royal](https://www.instagram.com/garyroyaltattoo/)
 
-Idle Hand
+[John Caleb](https://www.instagram.com/johnxcalebtattoo/) -    Chapter
 
 
-[George Campise](https://www.instagram.com/georgecampise/)
+[John Henry](https://www.instagram.com/gloyne83/) - Gloyne    Hot
 
-Warhorse    
 
+[Jorge Nuno](https://www.instagram.com/jorge_nuno/) -    Warhorse
 
-[Greg Christian](https://www.instagram.com/gregchristian4130/)
 
-   Tattoo
+[Juan Puente](https://www.instagram.com/classicjuan/) - Blackheart    
 
 
-[Greg Dyer](https://www.instagram.com/tacomonster/)
+[Julian Zeff](https://www.instagram.com/julianzeff/) -     Unbreakable
 
-Warhorse    
 
+[Junii     Diamond](https://www.instagram.com/junkoshimada/) - Club   
 
-[Greg James](https://www.instagram.com/gregtattoo/)
 
-Tattoos Deluxe
+[Kahlil Rintye](https://www.instagram.com/kahlilrintye/) - Tattoo City
 
 
-[Greg Mayorga](https://www.instagram.com/gregmayorga_/)
+[Kanae    9](https://www.instagram.com/kanae_tattooer/) - Tails    
 
-Deers Eye
 
+[Katja Ramirez](https://www.instagram.com/katjaramirez/) - Rock of
 
-[Greg Rojas](https://www.instagram.com/goldhand/)
 
-Tattoo City
+[Kevin Marr](https://www.instagram.com/kevinmarr_horikema/) - Resolution Studio
 
 
-[Grez    Kings](https://www.instagram.com/kingsavetattoo/)
+[Kevin Pulido](https://www.instagram.com/kevindcsf/) - Diamond Club
 
-Avenue    
 
+[Kiku](https://www.instagram.com/kikupunk/) - Invisible NYC
 
-[Grime](https://www.instagram.com/the_grime/)
 
-Skull and
+[Koji Ichimaru](https://www.instagram.com/kojiichimaru/) - Tattoo Box
 
 
-[Hans Joen](https://www.instagram.com/hansebluearms/)
+[Lauren Winzer](https://www.instagram.com/laurenwinzer/) -    Hunter
 
-Heggum 
 
+[Laurent Trelaun](https://www.instagram.com/laurent_trelaun/) -    Spider
 
-[Harv    Strong](https://www.instagram.com/yourhomeboy_harv/)
 
-Tattoo    
+[Lil Tokyo](https://www.instagram.com/liltokyojiro_onizukatattoo/) - Jiro 
 
 
-[Heath Nock](https://www.instagram.com/heathnock/)
+[Little Linda](https://www.instagram.com/littlebabylinda/) - Elm Street
 
-Hunter and
 
+[Luke Stewart](https://www.instagram.com/lukeseventhson/) - Seventh Son
 
-[Heath Preheim](https://www.instagram.com/heathtemple/)
 
-Temple Tattoo
+[Marcos Adame](https://www.instagram.com/marcos_adame/) - Secret Sidewalk
 
 
-[Heather Bailey](https://www.instagram.com/cathedraloftears/)
+[Marcus Pacheco](undefined) - Primal Urge
 
-Blackheart    
 
+[Mary Joy](https://www.instagram.com/maryjoytattoo/) - Tattoo City
 
-[Henry Dever](https://www.instagram.com/henrydevertattoo/)
 
-Napa Valley
+[Matt Arriola](https://www.instagram.com/mattarriola/) - Snake River
 
 
-[Holly Ellis](https://www.instagram.com/hollsballs1/)
+[Matt Deverson](https://www.instagram.com/mattdeversontattoo/) -    Progression
 
-   Idle
 
+[Matt Howse](https://www.instagram.com/matthowse/) - Seventh Son
 
-[Horichuy     Onizuka](https://www.instagram.com/horichuy)
 
-Tattoo    
+[Matt Knopp](https://www.instagram.com/matt2paradisedc/) -    Tattoo
 
 
-[Horihachi    Japan](http://https://www.instagram.com/horihachi/)
+[Matt Shamah](https://www.instagram.com/mattshamah/) - Analog Tattoo
 
 
+[Maxime Buchi](https://www.instagram.com/mxmttt/) - Sang Bleu
 
 
-[Horikiku   Japan](https://www.instagram.com/horikiku/)
+[Megan Wilson](https://www.instagram.com/ladywilson/) - Analog Tattoo
 
 
+[Melissa Manuel](https://www.instagram.com/melchonattack/) - Humble Beginnings
 
 
-[Ian Carder](https://www.instagram.com/iancarder/)
+[Miguel Montgomery](https://www.instagram.com/waachip/) - Port City
 
-   Forever
 
+[Mike Davis](https://www.instagram.com/mikedavis813/) - Everlasting    
 
-[Ian Jones](https://www.instagram.com/jonezyzaps)
 
-True Tattoo
+[Mike Rubendall](https://www.instagram.com/mikerubendall/) -    Kings
 
 
-[Ikyu    Japan](https://www.instagram.com/urojiya/)
+[Mitch Love](https://www.instagram.com/mitchxlovetattoo/) -    Australia
 
 
+[Mutsuo](https://www.instagram.com/mutsuo3t/) - 3 Tides
 
 
-[Jason Kundell](https://www.instagram.com/artworkrebelstattoo/)
+[Nikko Hurtado](https://www.instagram.com/nikkohurtado/) - Black Anchor
 
-   Art
 
+[Oliver Peck](https://www.instagram.com/oliverpecker/) -   Elm
 
-[Jason McAfee](https://www.instagram.com/jasonmcafee72/)
 
-   Temple
+[Olivia Olivier](https://www.instagram.com/olivia_olivier/) - Everlasting   
 
 
-[Jason Motley](https://www.instagram.com/jason_motley/)
+[Orly Locquiao](https://www.instagram.com/orlycukui/) - Humble Beginnings
 
-Power Tattoo
 
+[Paco Excel](https://www.instagram.com/pacoexcel/) - Death Before
 
-[Jason Vaughn](https://www.instagram.com/jason_vaughn_tattoos/)
 
-Dark Horse
+[Paul Dobleman](https://www.instagram.com/pauldobleman/) -    Spider
 
 
-[Jeff Croci](https://www.instagram.com/jeffcroci/)
+[Paul Sand](https://www.instagram.com/p.sand_art/) - Belmont Tattoo
 
-Seventh Son
 
+[Pierre Chapelan](https://www.instagram.com/pierretm/) -   Tattoo
 
-[Jeff Gleason](https://www.instagram.com/jeffpgleason/)
 
-   Everlasting
+[Reiko    Studio](https://www.instagram.com/reikotattoo/) - Keen    
 
 
-[Jeff Rassier](https://www.instagram.com/jeffrassier/)
+[Ricardo Avila](https://www.instagram.com/ricardo_avila/) -    Ink
 
-Blackheart   
 
+[Rob Benavides](https://www.instagram.com/gorillaboxer/) - Flying Panther
 
-[Jen Lee](https://www.instagram.com/jenleetattoo/)
 
-Tattoo City
+[Rob Hamilton](https://www.instagram.com/robhamiltontattoo/) -    Tattoo
 
 
-[Jeremy Lyn](https://www.instagram.com/jeremylyn/)
+[Rob Struven](https://www.instagram.com/rob_struven_tattoo/) - Napa Valley
 
-Kimzey Spider
 
+[Robert Ryan](https://www.instagram.com/robertryan323/) -    Electric
 
-[Jesico    Hold](https://www.instagram.com/jesico_/)
 
-Fast    
+[Ron Earhart](https://www.instagram.com/ronearhart/) - Analog Tattoo
 
 
-[Joe Haasch](https://www.instagram.com/joehaasch/)
+[Ron Wells](https://www.instagram.com/the_hyena/) - The Torchbearer
 
-Elm Street
 
+[Ross Carlson](https://www.instagram.com/rosscarlsonawr/) - Art Work
 
-[Joe Larralde](https://www.instagram.com/joelarralde/)
 
-  Art
+[Ross Jones](https://www.instagram.com/rosskjones/) - Idle Hand
 
 
-[Joey G](https://www.instagram.com/joey_g/)
+[Roxx](https://www.instagram.com/roxx____/) - 2 Spirit
 
-Strong Tattoo
 
+[Samoan Mike](https://www.instagram.com/samoan_mike/) - Sacred Center
 
-[John Caleb](https://www.instagram.com/johnxcalebtattoo/)
 
-   Chapter
+[Scott Bakoss](https://www.instagram.com/scottbakoss/) - Eastern Pass
 
 
-[John Henry](https://www.instagram.com/gloyne83/)
+[Scott Sylvia](https://www.instagram.com/scsylvia/) - Blackheart    
 
-Gloyne    Hot
 
+[Seth Ciferri](https://www.instagram.com/sethciferri/) - Black Claw
 
-[Jorge Nuno](https://www.instagram.com/jorge_nuno/)
 
-   Warhorse
+[Shaun Topper](https://www.instagram.com/shauntopper/) - Captured Tattoo
 
 
-[Juan Puente](https://www.instagram.com/classicjuan/)
+[Shawn Barber](https://www.instagram.com/shawndbarber/) - Memoir Tattoo
 
-Blackheart    
 
+[Shige    Yellow](https://www.instagram.com/shige_yellowblaze/) - Blaze    
 
-[Julian Zeff](https://www.instagram.com/julianzeff/)
 
-    Unbreakable
+[Stefan Johnsson](https://www.instagram.com/stefanjohnsson/) - Everlasting    
 
 
-[Junii     Diamond](https://www.instagram.com/junkoshimada/)
+[Steve Byrne](https://www.instagram.com/steve_byrne_tattoo/) - Rock of
 
-Club   
 
+[Stewart Robson](https://www.instagram.com/stewart_modernclassic/) -    Modern
 
-[Kahlil Rintye](https://www.instagram.com/kahlilrintye/)
 
-Tattoo City
+[Stizzo     Best](https://www.instagram.com/stizzo_bestoftimes/) - of Times
 
 
-[Kanae    9](https://www.instagram.com/kanae_tattooer/)
+[Sulu’ape Si’i](https://www.instagram.com/siiliufau/) - Liufau 
 
-Tails    
 
+[Sulu’ape Steve](https://www.instagram.com/pacificsoul_steve/) - Looney    Pacific
 
-[Katja Ramirez](https://www.instagram.com/katjaramirez/)
 
-Rock of
+[Sung Song](https://www.instagram.com/sungsong_unbreakable/) -    Unbreakable
 
 
-[Kevin Marr](https://www.instagram.com/kevinmarr_horikema/)
+[Teddie    Kaha](https://www.instagram.com/kaha_kii/) - Ki’I Arts
 
-Resolution Studio
 
+[Theo Mindell](https://www.instagram.com/theomindell/) - Spider Murphys
 
-[Kevin Pulido](https://www.instagram.com/kevindcsf/)
 
-Diamond Club
+[Thieves of](https://www.instagram.com/thievesoftower/) - Tower    2
 
 
-[Kiku](https://www.instagram.com/kikupunk/)
+[Thomas Hooper](https://www.instagram.com/thomas__hooper/) -   Rock
 
-Invisible NYC
 
+[Tim Beck](https://www.instagram.com/timbecktattoos/) - Freedom Ink
 
-[Koji Ichimaru](https://www.instagram.com/kojiichimaru/)
 
-Tattoo Box
+[Tim Hendricks](https://www.instagram.com/timhendricks/) - Classic Tattoo
 
 
-[Lauren Winzer](https://www.instagram.com/laurenwinzer/)
+[Toby Torres](https://www.instagram.com/toby2thumbs/) - Humble Beginnings
 
-   Hunter
 
+[Todd Tauscher](https://www.instagram.com/toddtauscher/) -    Hold
 
-[Laurent Trelaun](https://www.instagram.com/laurent_trelaun/)
 
-   Spider
+[Tony Degrazia](https://www.instagram.com/tonydegrazia/) -    Analog
 
 
-[Lil Tokyo](https://www.instagram.com/liltokyojiro_onizukatattoo/)
+[Tony Duong](undefined) - Hold Fast
 
-Jiro 
 
+[Tony Hundahl](https://www.instagram.com/t_hundahl/) - Rock of
 
-[Little Linda](https://www.instagram.com/littlebabylinda/)
 
-Elm Street
+[Toothtaker](https://www.instagram.com/toothtaker/) - Staring Without
 
 
-[Luke Stewart](https://www.instagram.com/lukeseventhson/)
+[Trevor McStay](https://www.instagram.com/dynamictrev/) -    Dynamic
 
-Seventh Son
 
+[Tuigamala Andy](https://www.instagram.com/taupoutatau/) - Tauafiafi   Taupou
 
-[Marcos Adame](https://www.instagram.com/marcos_adame/)
 
-Secret Sidewalk
+[Twig Sparks](https://www.instagram.com/twignasio_/) -    Hand
 
 
-[Marcus Pacheco](undefined)
+[Tyler Borich](https://www.instagram.com/tylerborich/) - Memoir Tattoo
 
-Primal Urge
 
+[Valerie Vargas](https://www.instagram.com/valeriemodernclassic/) - Modern Classic
 
-[Mary Joy](https://www.instagram.com/maryjoytattoo/)
 
-Tattoo City
+[Venjamin Jiminez](https://www.instagram.com/venjaminart/) -    Strong
 
 
-[Matt Arriola](https://www.instagram.com/mattarriola/)
+[Vero Imbo](https://www.instagram.com/veroniqueimbo/) - The Arts
 
-Snake River
 
+[Virginia Elwood](https://www.instagram.com/virginiaelwood/) - Saved NYC
 
-[Matt Deverson](https://www.instagram.com/mattdeversontattoo/)
 
-   Progression
-
-
-[Matt Howse](https://www.instagram.com/matthowse/)
-
-Seventh Son
-
-
-[Matt Knopp](https://www.instagram.com/matt2paradisedc/)
-
-   Tattoo
-
-
-[Matt Shamah](https://www.instagram.com/mattshamah/)
-
-Analog Tattoo
-
-
-[Maxime Buchi](https://www.instagram.com/mxmttt/)
-
-Sang Bleu
-
-
-[Megan Wilson](https://www.instagram.com/ladywilson/)
-
-Analog Tattoo
-
-
-[Melissa Manuel](https://www.instagram.com/melchonattack/)
-
-Humble Beginnings
-
-
-[Miguel Montgomery](https://www.instagram.com/waachip/)
-
-Port City
-
-
-[Mike Davis](https://www.instagram.com/mikedavis813/)
-
-Everlasting    
-
-
-[Mike Rubendall](https://www.instagram.com/mikerubendall/)
-
-   Kings
-
-
-[Mitch Love](https://www.instagram.com/mitchxlovetattoo/)
-
-   Australia
-
-
-[Mutsuo](https://www.instagram.com/mutsuo3t/)
-
-3 Tides
-
-
-[Nikko Hurtado](https://www.instagram.com/nikkohurtado/)
-
-Black Anchor
-
-
-[Oliver Peck](https://www.instagram.com/oliverpecker/)
-
-  Elm
-
-
-[Olivia Olivier](https://www.instagram.com/olivia_olivier/)
-
-Everlasting   
-
-
-[Orly Locquiao](https://www.instagram.com/orlycukui/)
-
-Humble Beginnings
-
-
-[Paco Excel](https://www.instagram.com/pacoexcel/)
-
-Death Before
-
-
-[Paul Dobleman](https://www.instagram.com/pauldobleman/)
-
-   Spider
-
-
-[Paul Sand](https://www.instagram.com/p.sand_art/)
-
-Belmont Tattoo
-
-
-[Pierre Chapelan](https://www.instagram.com/pierretm/)
-
-  Tattoo
-
-
-[Reiko    Studio](https://www.instagram.com/reikotattoo/)
-
-Keen    
-
-
-[Ricardo Avila](https://www.instagram.com/ricardo_avila/)
-
-   Ink
-
-
-[Rob Benavides](https://www.instagram.com/gorillaboxer/)
-
-Flying Panther
-
-
-[Rob Hamilton](https://www.instagram.com/robhamiltontattoo/)
-
-   Tattoo
-
-
-[Rob Struven](https://www.instagram.com/rob_struven_tattoo/)
-
-Napa Valley
-
-
-[Robert Ryan](https://www.instagram.com/robertryan323/)
-
-   Electric
-
-
-[Ron Earhart](https://www.instagram.com/ronearhart/)
-
-Analog Tattoo
-
-
-[Ron Wells](https://www.instagram.com/the_hyena/)
-
-The Torchbearer
-
-
-[Ross Carlson](https://www.instagram.com/rosscarlsonawr/)
-
-Art Work
-
-
-[Ross Jones](https://www.instagram.com/rosskjones/)
-
-Idle Hand
-
-
-[Roxx](https://www.instagram.com/roxx____/)
-
-2 Spirit
-
-
-[Samoan Mike](https://www.instagram.com/samoan_mike/)
-
-Sacred Center
-
-
-[Scott Bakoss](https://www.instagram.com/scottbakoss/)
-
-Eastern Pass
-
-
-[Scott Sylvia](https://www.instagram.com/scsylvia/)
-
-Blackheart    
-
-
-[Seth Ciferri](https://www.instagram.com/sethciferri/)
-
-Black Claw
-
-
-[Shaun Topper](https://www.instagram.com/shauntopper/)
-
-Captured Tattoo
-
-
-[Shawn Barber](https://www.instagram.com/shawndbarber/)
-
-Memoir Tattoo
-
-
-[Shige    Yellow](https://www.instagram.com/shige_yellowblaze/)
-
-Blaze    
-
-
-[Stefan Johnsson](https://www.instagram.com/stefanjohnsson/)
-
-Everlasting    
-
-
-[Steve Byrne](https://www.instagram.com/steve_byrne_tattoo/)
-
-Rock of
-
-
-[Stewart Robson](https://www.instagram.com/stewart_modernclassic/)
-
-   Modern
-
-
-[Stizzo     Best](https://www.instagram.com/stizzo_bestoftimes/)
-
-of Times
-
-
-[Sulu’ape Si’i](https://www.instagram.com/siiliufau/)
-
-Liufau 
-
-
-[Sulu’ape Steve](https://www.instagram.com/pacificsoul_steve/)
-
-Looney    Pacific
-
-
-[Sung Song](https://www.instagram.com/sungsong_unbreakable/)
-
-   Unbreakable
-
-
-[Teddie    Kaha](https://www.instagram.com/kaha_kii/)
-
-Ki’I Arts
-
-
-[Theo Mindell](https://www.instagram.com/theomindell/)
-
-Spider Murphys
-
-
-[Thieves of](https://www.instagram.com/thievesoftower/)
-
-Tower    2
-
-
-[Thomas Hooper](https://www.instagram.com/thomas__hooper/)
-
-  Rock
-
-
-[Tim Beck](https://www.instagram.com/timbecktattoos/)
-
-Freedom Ink
-
-
-[Tim Hendricks](https://www.instagram.com/timhendricks/)
-
-Classic Tattoo
-
-
-[Toby Torres](https://www.instagram.com/toby2thumbs/)
-
-Humble Beginnings
-
-
-[Todd Tauscher](https://www.instagram.com/toddtauscher/)
-
-   Hold
-
-
-[Tony Degrazia](https://www.instagram.com/tonydegrazia/)
-
-   Analog
-
-
-[Tony Duong](undefined)
-
-Hold Fast
-
-
-[Tony Hundahl](https://www.instagram.com/t_hundahl/)
-
-Rock of
-
-
-[Toothtaker](https://www.instagram.com/toothtaker/)
-
-Staring Without
-
-
-[Trevor McStay](https://www.instagram.com/dynamictrev/)
-
-   Dynamic
-
-
-[Tuigamala Andy](https://www.instagram.com/taupoutatau/)
-
-Tauafiafi   Taupou
-
-
-[Twig Sparks](https://www.instagram.com/twignasio_/)
-
-   Hand
-
-
-[Tyler Borich](https://www.instagram.com/tylerborich/)
-
-Memoir Tattoo
-
-
-[Valerie Vargas](https://www.instagram.com/valeriemodernclassic/)
-
-Modern Classic
-
-
-[Venjamin Jiminez](https://www.instagram.com/venjaminart/)
-
-   Strong
-
-
-[Vero Imbo](https://www.instagram.com/veroniqueimbo/)
-
-The Arts
-
-
-[Virginia Elwood](https://www.instagram.com/virginiaelwood/)
-
-Saved NYC
-
-
-[Zac Scheinbaum](https://www.instagram.com/zacscheinbaum/)
-
-Kings Avenue
+[Zac Scheinbaum](https://www.instagram.com/zacscheinbaum/) - Kings Avenue
 
